@@ -1,3 +1,7 @@
++7 (910) 949-14-15
+[Telegram](https://t.me/Dnevvs)
+[dnevvs@yandex.ru](dnevvs@yandex.ru)
+
 **Опыт работы —11 лет 2 месяца**
 
  **Аналитик данных. Специалист по Data Science. Python=разработчик.**
