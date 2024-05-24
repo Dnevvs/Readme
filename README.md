@@ -1,6 +1,8 @@
 +7 (910) 949-14-15
-[Telegram](https://t.me/Dnevvs)
-[dnevvs@yandex.ru](dnevvs@yandex.ru)
+
+[Telegram: https://t.me/Dnevvs](https://t.me/Dnevvs)
+
+[Email: dnevvs@yandex.ru](dnevvs@yandex.ru)
 
 **Опыт работы —11 лет 2 месяца**
 
